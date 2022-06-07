@@ -1,0 +1,6 @@
+- hi im bow
+- i do things
+- i dont do alot here tho
+- idk why im here
+- most of the repos are probably just there for people to look at my bad everything
+- i have a discord tho so uh              yeah uh you can find me here --> moster#0001
